@@ -64,4 +64,11 @@ rewear/
 
 Fashion lovers, eco-warriors, thrifters, and anyone who believes in giving clothes a second chance.
 
+🧵 Made With Love
 
+Crafted by Codeblooded
+Team Leader:- Piyush Pankaj
+Member 1- Tanisha Bhandari
+Member 2- Manvendra Singh
+Member 3- Shrestha Tewari  ✨
+Let’s make sustainable fashion the new norm.
